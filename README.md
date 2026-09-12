@@ -1,10 +1,10 @@
 ⠀🪽 ֹ ͏ ͏  ࣭  𝒞upid⠀!! ⠀ㅤ᧔ ⑅ ᧓
 ========================
 
-⊰ ° ׅ she ˚ ᵎᵎ her ౿
+⊰ ° ׅ 06 ˚ ᵎᵎ 10 ౿
 --------------------
 
-⏜ ׄ⌒⡷ ִ ׄ ﹆ ִ 🎀 ׄ dnc ! / int ! / free c+h / ִ ๑ ᩧ ׄ ׄ 16y / love hazbin hotel ! ׄ ִ 🌺 ︶︶ . ︶︶︶ ⊹
+⏜ ׄ⌒⡷ ִ ׄ ﹆ ִ 🌸 ׄ i love hazbin hotel , sally face , heluva boss , steven universe , and more   ! / int ! / free c+h / ִ ๑ ᩧ ׄ ׄ 16y  ! ׄ ִ 🌷 ︶︶ . ︶︶︶ ⊹
 
 
 ### Socials
