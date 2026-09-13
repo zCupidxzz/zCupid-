@@ -5,8 +5,9 @@
 ⊰ ° ׅ 06 ˚ ᵎᵎ 10 ౿
 --------------------
 
-⏜ ׄ⌒⡷ ִ ׄ ﹆ ִ 🌸 ׄ i love hazbin hotel , sally face , heluva boss , steven universe , and more   ! / int ! / free c+h / ִ ๑ ᩧ ׄ ׄ 16y  ! ׄ ִ 🌷 ︶︶ . ︶︶︶ ⊹
-
+likes : animals , nature , series / movies and more!
+dislikes : homophobia , racism , transfobia , etc.
+⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨
 
 ### Socials
 
